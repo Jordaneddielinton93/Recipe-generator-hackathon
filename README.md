@@ -15,7 +15,7 @@ for example :
 
 ---
 
-Here is an example of previous website , feek free to take inspiration:
+Here is an example of previous website , feel free to take inspiration:
 
 Jordan’s Application:
 
